@@ -1,0 +1,1 @@
+# 9-sinif-kimya-multi-soru-bankasi-32
